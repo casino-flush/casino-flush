@@ -12,7 +12,7 @@
 
 <p  align="center"> <img src="https://64.media.tumblr.com/bd34fcb117a8df79156373f3d53cbfb1/b2b2e140ec8eafd1-36/s75x75_c1/4cdf295f139f1bd0fe86a95e4240078ce524825d.gif">  $\color{#b50c04}{  ⠀ ⠀  ty! ⠀⠀ }$ <a href="https://github.com/Ponytowns-ships">hall of media</a> <a href="https://github.com/Ponytowns-ships">pt-ships</a>  <a href="https://github.com/pt-heavyfictkin">pt-hvykin</a> <a href="https://github.com/pt-everypony">pt-everypony</a> ⠀ ⠀<img src="https://64.media.tumblr.com/a4d4778160680de8dbbe8093930a7858/af7cde8bac66f1c7-a6/s250x400/e041057181f4eab8007e4668c78b7638e7399806.gif" height=30 width=50>
  <p align="center">
-   <img src="https://files.catbox.moe/at4p0w.gif">   $\color{#d90707}{  ⠀my  ⠀⠀   }$ <a href="https://github.com/prizeflush">girlfriend</a>  $\color{#3d3838}{   ⠀⠀       the sun to my moon⠀⠀  }$
+   <img src="https://files.catbox.moe/at4p0w.gif">   $\color{#d90707}{  ⠀my  ⠀⠀   }$ <a href="https://github.com/prizeflush">girlfriend</a>  $\color{#3d3838}{   ⠀⠀       check her out!!⠀⠀  }$
  <p align="center">                      
  <p align="center">              
             <img src="https://files.catbox.moe/rqbvog.gif"> ⠀
