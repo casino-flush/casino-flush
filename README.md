@@ -10,7 +10,7 @@
 
 <p  align="center">   <img src="https://files.catbox.moe/n1smen.gif"  height=20 width=170> ⠀ ⠀<img src="https://64.media.tumblr.com/a8c257c4fda75c23b343b3daa929c387/bab27da16a6a8f00-29/s75x75_c1/027fafd94d58cd665779b5d9395ef8fcc21cbb92.gif"> $\color{#750b0b}{   ⠀⠀ adult/18+ iwec⠀⠀      }$ 
 
-<p  align="center"> <img src="https://64.media.tumblr.com/bd34fcb117a8df79156373f3d53cbfb1/b2b2e140ec8eafd1-36/s75x75_c1/4cdf295f139f1bd0fe86a95e4240078ce524825d.gif">  $\color{#b50c04}{  ⠀ ⠀  ty! ⠀⠀ }$ <a href="https://github.com/Ponytowns-ships">hall of media</a> <a href="https://github.com/Ponytowns-ships">pt-ships</a>  <a href="https://github.com/pt-heavyfictkin">pt-hvykin</a> <a href="https://github.com/pt-everypony">pt-everypony</a> ⠀ ⠀<img src="https://64.media.tumblr.com/a4d4778160680de8dbbe8093930a7858/af7cde8bac66f1c7-a6/s250x400/e041057181f4eab8007e4668c78b7638e7399806.gif" height=30 width=50>
+<p  align="center"> <img src="https://64.media.tumblr.com/bd34fcb117a8df79156373f3d53cbfb1/b2b2e140ec8eafd1-36/s75x75_c1/4cdf295f139f1bd0fe86a95e4240078ce524825d.gif">  $\color{#b50c04}{  ⠀ ⠀  ty! ⠀⠀ }$ <a href="https://github.com/pt-hall-of-media">hall of media</a> <a href="https://github.com/Ponytowns-ships">pt-ships</a>  <a href="https://github.com/pt-heavyfictkin">pt-hvykin</a> <a href="https://github.com/pt-everypony">pt-everypony</a> ⠀ ⠀<img src="https://64.media.tumblr.com/a4d4778160680de8dbbe8093930a7858/af7cde8bac66f1c7-a6/s250x400/e041057181f4eab8007e4668c78b7638e7399806.gif" height=30 width=50>
  <p align="center">
    <img src="https://files.catbox.moe/at4p0w.gif">   $\color{#d90707}{  ⠀my  ⠀⠀   }$ <a href="https://github.com/prizeflush">girlfriend</a>  $\color{#3d3838}{   ⠀⠀       follow  her :)⠀⠀  }$
  <p align="center">                      
